@@ -1,1 +1,2 @@
-[MarynaHlushakSW.pdf](https://github.com/MarynaHl/SW/files/9819336/MarynaHlushakSW.pdf)
+
+[MarynaHlushak.pdf](https://github.com/MarynaHl/SW/files/9820198/MarynaHlushak.pdf)
