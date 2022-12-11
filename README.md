@@ -1,2 +1,3 @@
 
-[MarynaHlushak.pdf](https://github.com/MarynaHl/SW/files/9820978/MarynaHlushak.pdf)
+
+[Maryna_Hlushak_FrontendDeveloper.pdf](https://github.com/MarynaHl/RESUME/files/10202303/Maryna_Hlushak_FrontendDeveloper.pdf)
